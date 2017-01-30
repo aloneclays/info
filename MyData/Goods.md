@@ -1,3 +1,6 @@
+u1: https://detail.tmall.com/item.htm?id=543814222102&ad_id=&am_id=&cm_id=140105335569ed55e27b&pm_id=&abbucket=16
+u2:https://detail.tmall.com/item.htm?id=543393362314&ad_id=&am_id=&cm_id=140105335569ed55e27b&pm_id=&abbucket=16
+格洋 U盘128G高速防水车载金属u盘128G迷你128G电脑U盘128G优盘 
 口琴48 https://item.taobao.com/item.htm?spm=a230r.1.14.42.Jctv5c&id=543904003073&ns=1&abbucket=3#detail
 19.8的c语言编程书 https://detail.tmall.com/item.htm?id=538986611401&cm_id=140105335569ed55e27b&abbucket=3
 网络系统 https://detail.tmall.com/item.htm?spm=a230r.1.14.4.Dz9dK9&id=44527155366&ns=1&abbucket=3
