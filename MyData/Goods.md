@@ -1,3 +1,7 @@
+
+299
+惠普2132彩色喷墨打印机一体机家用小型办公学生照片A4纸复印扫描
+printer https://detail.tmall.com/item.htm?id=520844411874&ns=1&abbucket=16&sku_properties=5919063:6536025 
 u2:https://detail.tmall.com/item.htm?id=543393362314&ad_id=&am_id=&cm_id=140105335569ed55e27b&pm_id=&abbucket=16
 格洋 U盘128G高速防水车载金属u盘128G迷你128G电脑U盘128G优盘 
 口琴48 https://item.taobao.com/item.htm?spm=a230r.1.14.42.Jctv5c&id=543904003073&ns=1&abbucket=3#detail
